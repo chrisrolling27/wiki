@@ -1,0 +1,1 @@
+Pretty good guy, would befriend again, 9/10
